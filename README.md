@@ -33,6 +33,7 @@
 - my memory precedes me (my memory deceives me)
 - self depreciating (self deprecating)
 - contigious (instead of contentious)
+- take you through the rigors
 - town down
 - james, i knew you were the corporate (culprit)
 - on another hand (on the other hand)
