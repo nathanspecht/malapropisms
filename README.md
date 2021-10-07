@@ -56,7 +56,7 @@
 - in the ball range (in the ball park)
 - he doesn't have the gauls (the gauls)
 - pull the voodoo over your eyes
-- click it on (instead of click on it) 
+- click it on (instead of click on it)
 - disrespective (instead of irrespective)
 - i think that's why i was having second guesses (instead of second thoughts)
 - the warehouse is in dismay (instead of disarray)
@@ -158,3 +158,5 @@
 - i've got a stew of videos we can analyze (instead of slew)
 - his name is deceiving me
 - slam-packed
+- i've got no horse in the game (no horse in the race, dog in the hunt)
+- deal killer (deal breaker)
