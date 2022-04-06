@@ -161,3 +161,4 @@
 - i've got no horse in the game (no horse in the race, dog in the hunt)
 - deal killer (deal breaker)
 - stab in the dark (shot in the dark, take a stab at it)
+- get all our ducks in order (get our ducks in a row)
