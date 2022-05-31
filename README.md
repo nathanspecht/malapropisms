@@ -162,3 +162,4 @@
 - deal killer (deal breaker)
 - stab in the dark (shot in the dark, take a stab at it)
 - get all our ducks in order (get our ducks in a row)
+- seal the knot (tie the knot)
