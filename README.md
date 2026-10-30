@@ -1,5 +1,5 @@
 - all steam ahead (full steam ahead)
-- trick of the hand (slight of hand, trick of the light)
+- trick of the hand (sleight of hand, trick of the light)
 - cast your dyes wider
 - lip dub (lip sync)
 - double guess (second guess)
